@@ -14,4 +14,5 @@
 
 <p align="center">
 ᯓ★ If I find it necessary to hide you, I will.
+✮⋆˙    I AM anti-harassment.
 </p>
