@@ -1,16 +1,17 @@
-## Hi there 👋
 
-<!--
-**GetJinx3d/GetJinx3d** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+  <img width="460" height="300" src="https://i.pinimg.com/736x/a7/cf/ad/a7cfad0f26c6804ca6253478fcdbf8ab.jpg">
+</p>
 
-Here are some ideas to get you started:
+<h1 align="center">ᯓ★ BEAR [SHE/HE]</h1>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+  ᯓ★ AUTOMATIC DNI'S ;<br/>
+✮⋆˙ People who ship Susie&Kris as well as Noelle&Kris, or all 3.<br/>
+    ✮⋆˙   People who make Cuckelle jokes.<br/>
+        ✮⋆˙    and anyone under the age of 14.<br/>
+				</p>
+
+<p align="center">
+ᯓ★ If I find it necessary to hide you, I will.
+</p>
