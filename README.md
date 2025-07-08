@@ -11,6 +11,13 @@
     ✮⋆˙   People who make Cuckelle jokes.<br/>
         ✮⋆˙    and anyone under the age of 14.<br/>
 				</p>
+    
+<p align="center">
+  ᯓ★ PLEASE INT IF ;<br/>
+  ✮⋆˙ You like cartoons (kipo/toh/amphibia ex.), arcane, deltarune!<br/>
+    ✮⋆˙   People who ship Noelle and Susie, people who ship Berdly and Kris are fine too!<br/>
+        ✮⋆˙    anyone in the 14-17 range is chill by me.<br/>
+				</p>
 
 <p align="center">
 ᯓ★ If I find it necessary to hide you, I will.<br/>
