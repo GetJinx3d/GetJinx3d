@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img width="460" height="300" src="https://i.pinimg.com/736x/a7/cf/ad/a7cfad0f26c6804ca6253478fcdbf8ab.jpg">
+  <img width="800" height="300" src="https://i.pinimg.com/736x/a1/37/98/a13798d1b09b2b74bd5b2aec92b336a5.jpg">
 </p>
 
 <h1 align="center">ᯓ★ BEAR [SHE/HE]</h1>
