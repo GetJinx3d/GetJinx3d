@@ -28,6 +28,7 @@ $\color{rgba(255,0,0, 0.4)}{\textsf{✮⋆˙ and anyone not okay with topics or 
 $\color{rgba(255,0,0, 0.4)}{\textsf{  ᯓ★ PLEASE INT IF ;}}$<br/>
 $\color{rgba(255,0,0, 0.4)}{\textsf{ ✮⋆˙ You like cartoons (kipo/toh/amphibia ex.), arcane, deltarune!}}$<br/>
 $\color{rgba(255,0,0, 0.4)}{\textsf{✮⋆˙   People who ship Noelle and Susie, people who ship Berdly and Kris are fine too!}}$<br/>
+	$\color{rgba(255,0,0, 0.4)}{\textsf{✮⋆˙   PEOPLE WHO LIKE DESS OR COSPLAY DESS!}}$<br/>
 $\color{rgba(255,0,0, 0.4)}{\textsf{✮⋆˙    anyone in the 14-17 range is chill by me.}}$<br/> 
 				</p>
 
