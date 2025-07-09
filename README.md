@@ -21,6 +21,7 @@ $\color{rgba(255,0,0, 0.4)}{\textsf{  ᯓ★ AUTOMATIC DNI'S ;}}$<br/>
 $\color{rgba(255,0,0, 0.4)}{\textsf{✮⋆˙ People who ship Susie and Kris as well as Noelle and Kris, or all 3.}}$<br/>
 $\color{rgba(255,0,0, 0.4)}{\textsf{✮⋆˙ People who make Cuckelle jokes.}}$<br/>
 $\color{rgba(255,0,0, 0.4)}{\textsf{        ✮⋆˙    anyone under the age of 14.}}$<br/>
+$\color{rgba(255,0,0, 0.4)}{\textsf{        ✮⋆˙    roleplayers, calling me by a character's name is fine but my cosplay doesnt make me a rper.}}$<br/>
 $\color{rgba(255,0,0, 0.4)}{\textsf{✮⋆˙ and anyone not okay with topics or mentions of weed.}}$<br/>
 				</p>
     
