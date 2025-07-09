@@ -1,4 +1,7 @@
 
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=getjinx3d&label=Profile%20views&color=ff4c00&style=flat" alt="getjinx3d" /> </p>
+</p>
+
 <p align="center">
   <img width="800" height="500" src="https://64.media.tumblr.com/a3a51e07f99ff3151bce8a7276400e6d/27092487f77847a0-95/s1280x1920/32b599cd56300d9d91446726c489a2232b9743a5.gifv">
 </p>
