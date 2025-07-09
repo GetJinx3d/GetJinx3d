@@ -136,3 +136,15 @@ $\large\color{#ff4c00}{\textsf{Sah Sonnenkinder im Gewimmel und so rief ich in d
 	 <img width="200" height="150" src="https://64.media.tumblr.com/83dd083bcb0c786b0a050e8f7d9b57b2/b1704a2155e9f9fd-35/s250x400/4e3255c699225c4ed5edee149c263d599e853e50.gifv">
 	 <img width="200" height="150" src="https://64.media.tumblr.com/c5cc396e8722b9d43a3e5c610f367851/b1704a2155e9f9fd-ab/s250x400/6ccb1da19375b92a2e6ee0a23d82f341327e4681.gifv">
    </p>
+
+<p align="center">
+  <img width="800" height="300" src="https://64.media.tumblr.com/feb591b9b715999e6487939cb6b3beba/4f11a9ca2b61893a-78/s1280x1920/67e67dbfb7c8cc479ee58844ddea189d8cd9db80.pnj">
+</p>
+
+<p align="center">
+$\Huge\color{#ff4c00}{\textsf{odd things i have heard...}}$
+</p>
+
+<p align="center">
+$\color{#ff4c00}{\textsf{11:29 PM [noelle | sign ata] <{OMG SO CUTE}> B/W TO SUMMON CUTE FURRY FEMBOY}}$   | < MY GIRLFRIEND. |
+</p>
