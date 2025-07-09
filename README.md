@@ -146,5 +146,7 @@ $\Huge\color{#ff4c00}{\textsf{odd things i have heard...}}$
 </p>
 
 <p align="center">
-$\color{#ff4c00}{\textsf{11:29 PM [noelle | sign ata] <{OMG SO CUTE}> B/W TO SUMMON CUTE FURRY FEMBOY}}$   | < MY GIRLFRIEND. |
+$\color{#ff4c00}{\textsf{11:29 PM [noelle | sign ata] <{OMG SO CUTE}> B/W TO SUMMON CUTE FURRY FEMBOY}}$   | < MY GIRLFRIEND. |<br/>
+$\color{#ff4c00}{\textsf{11:54 PM[suburbia overture] EMMET FROM THE HIT MOVIE LEGO MOVIE APPROVES OF THIS 💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥}}$<br/>
+$\color{#ff4c00}{\textsf{11:57 PM[Leech;] We are the chewlings give us our chew}}$<br/>														     
 </p>
