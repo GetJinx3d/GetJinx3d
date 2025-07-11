@@ -29,7 +29,7 @@
 
 
 <p align="right"> <img width="200" height="150" src="https://64.media.tumblr.com/2dc209372fd46ce2d97179bef00b4705/93404a6466445b0d-4c/s400x600/4da8c051cfab707025584a90b2ed168b90c6c393.gif"><br/> 
-$\small\color{rgba(160,191,240)}{\textsf{⭑.ᐟ hi! im bear. i can be kind of a douche but im trying to put myself out there.}}$<br/> $\small\color{rgba(160,191,240)}{\textsf{⭑.ᐟ im dry and nervous for a bit but i open up in no time.}}$<br/> $\small\color{rgba(160,191,240)}{\textsf{⭑.ᐟ severly mentally ill at points.. patience is liked.}}$<br/>  
+$\small\color{rgba(160,191,240)}{\textsf{⭑.ᐟ hi! im bear. i can be kind of a douche but im trying to put myself out there.}}$<br/> $\small\color{rgba(160,191,240)}{\textsf{⭑.ᐟ im dry and nervous for a bit but i open up in no time.}}$<br/> $\small\color{rgba(160,191,240)}{\textsf{⭑.ᐟ severely mentally ill at points.. patience is liked.}}$<br/>  
   </p>
 
 <p align="left">  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<img width="100" height="50" src="https://64.media.tumblr.com/ba201436f912e7254e8e40c8b3fb9d9f/e1380e216f796dfb-b1/s400x600/ce50e790c979c30665a85352f45ff00c1fc882e3.gifv">
