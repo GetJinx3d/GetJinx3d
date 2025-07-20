@@ -29,7 +29,7 @@
 
 
 <p align="right"> <img width="200" height="150" src="https://64.media.tumblr.com/2dc209372fd46ce2d97179bef00b4705/93404a6466445b0d-4c/s400x600/4da8c051cfab707025584a90b2ed168b90c6c393.gif"><br/> 
-$\small\color{rgba(205,57,135)}{\textsf{⭑.ᐟ hi! im bear. i can be kind of a douche but im trying to put myself out there.}}$<br/> $\small\color{rgba(205,57,135)}{\textsf{⭑.ᐟ im dry and nervous for a bit but i open up in no time.}}$<br/> $\small\color{rgba(205,57,135)}{\textsf{⭑.ᐟ she/he lesbian, abide by whatever pronouns you think fit more.}}$<br/>  
+$\small\color{rgba(205,57,135)}{\textsf{⭑.ᐟ hi! im bear. i like being quiet.}}$<br/> $\small\color{rgba(205,57,135)}{\textsf{⭑.ᐟ im dry and nervous and quite possibly mean.}}$<br/> $\small\color{rgba(205,57,135)}{\textsf{⭑.ᐟ she/he lesbian, abide by whatever pronouns you think fit more.}}$<br/>  
   </p>
 
 
