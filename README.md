@@ -16,13 +16,7 @@
 </p>
 
 
-<img width="80" height="100" src="https://static.wikia.nocookie.net/deltarune/images/1/15/Susie_battle_item.gif/revision/latest?cb=20211002181349"> $\small\color{rgba(205,57,135)}{\textsf{⭑.ᐟmy ata ⭑.ᐟ my straw ⭑.ᐟ my twitch ⭑.ᐟ wifes straw}}$<br/> <img width="70" height="50" src="https://64.media.tumblr.com/d167fff0a5c7403fb1490c38f7231ff5/b7c3f9d01970128e-c6/s75x75_c1/af42b9d977d8d46b9ce151562186c6bd68c11251.gifv"> &nbsp;&nbsp;
-[<img width="70" height="50" src="https://64.media.tumblr.com/b9db0c4b4ab70896016c8ba754450b34/7ed144a41d10707d-30/s75x75_c1/2609523afd0b16d60f76175377827ba28d9ec6ac.webp">](https://jinxcultist.atabook.org/?page=1)
-[<img width="75" height="50" src="https://64.media.tumblr.com/5dc2e735b6402a4ad5edc573cba80a80/472fefc4266d762d-63/s75x75_c1/e23e0d6bb8c3434e1c4dc69b5d78ac08bfaf5dbc.gifv">](https://jinxcultist.straw.page)
-  [<img width="70" height="50" src="https://64.media.tumblr.com/444e3207aad78a8d13fb2047488bae7e/d072aa7bfa55c889-1a/s75x75_c1/17d43fc49a1dad1da9fb2d16d0bf03f6cf8e0199.gifv">](https://www.twitch.tv/losingmarbles)
-  [<img width="70" height="55" src="https://64.media.tumblr.com/eab95519e581ba3bed64a84d04d262e3/7ff15572939cc448-5f/s75x75_c1/d069e20862d35f6e6d1d99ccbc6119d65a56846f.gifv">](https://perishs-page.straw.page)
-
-<img src="https://lastfm-profile-readme.vercel.app/api/losingmarbles?color=ffa1fa&textColor=1a1141&isRounded=true&displayName=true" width="400" height="80" />
+<img width="160" height="240" src="https://static.wikia.nocookie.net/deltarune/images/5/55/Susie_battle_attack.gif/revision/latest?cb=20211104140910"> <img src="https://lastfm-profile-readme.vercel.app/api/losingmarbles?color=ffa1fa&textColor=1a1141&isRounded=true&displayName=true" width="300" height="80" />
 
 
 
