@@ -1,4 +1,4 @@
-<p align="right"> $\small\color{rgba(247,52,157)}{\textsf{⭑.ᐟ typically offline 7 am - 3 pm (EST) on weekdays!}}$<br/>
+<p align="right"> $\small\color{rgba(247,52,157)}{\textsf{⭑.ᐟ Recovering from surgery, online when I can be!}}$<br/>
 <p align="right"> <img src="https://komarev.com/ghpvc/?username=GetJinx3d&label=defeated%20losers&color=f63399&style=flat" alt="GetJinx3d" /> </p>
 </p>
 
