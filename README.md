@@ -1,3 +1,5 @@
+<p align="center"> <img width="700" height="70" src="https://64.media.tumblr.com/c322501e778b0801d9434d32ff09f768/c1ded7c976ad7d29-b9/s1280x1920/022dfb19f8fd6e9f4750c759293c1c42256a32a7.pnj">
+
 <p align="right"> $\small\color{rgba(247,52,157)}{\textsf{⭑.ᐟ Recovering from surgery, online when I can be!}}$<br/>
 <p align="right"> <img src="https://komarev.com/ghpvc/?username=GetJinx3d&label=defeated%20losers&color=f63399&style=flat" alt="GetJinx3d" /> </p>
 </p>
@@ -11,7 +13,9 @@
 
 
 <p align="right"> <img width="200" height="150" src="https://64.media.tumblr.com/2dc209372fd46ce2d97179bef00b4705/93404a6466445b0d-4c/s400x600/4da8c051cfab707025584a90b2ed168b90c6c393.gif"><br/> 
-$\small\color{rgba(247,52,157)}{\textsf{⭑.ᐟ hi! im bear. or beer.}}$<br/> $\small\color{rgba(247,52,157)}{\textsf{⭑.ᐟ i'm not inclined to be nice to you.}}$<br/> $\small\color{rgba(247,52,157)}{\textsf{⭑.ᐟ My main fixations are Jinx (arcane) and dinosaurs.}}$<br/> $\small\color{rgba(247,52,157)}{\textsf{⭑.ᐟ she/he lesbian, abide by whatever pronouns you think fit more.}}$<br/> $\small\color{rgba(247,52,157)}{\textsf{⭑.ᐟ anti-harassment. dni if -14 or if 20+.}}$<br/>
+$\small\color{rgba(247,52,157)}{\textsf{⭑.ᐟ hi! im bear. or beer.}}$<br/> $\small\color{rgba(247,52,157)}{\textsf{⭑.ᐟ i'm not inclined to be nice to you.}}$<br/> $\small\color{rgba(247,52,157)}{\textsf{⭑.ᐟ anti-harassment. dni if -14 or if 20+.}}$<br/> $\small\color{rgba(247,52,157)}{\textsf{⭑.ᐟ My main fixations are Jinx (arcane) and dinosaurs.}}$<br/> $\small\color{rgba(247,52,157)}{\textsf{⭑.ᐟ she/he lesbian, abide by whatever pronouns you think fit more.}}$<br/> 
   </p>
+
+  <p align="center"> <img width="700" height="70" src="https://64.media.tumblr.com/c322501e778b0801d9434d32ff09f768/c1ded7c976ad7d29-b9/s1280x1920/022dfb19f8fd6e9f4750c759293c1c42256a32a7.pnj">
 
 
