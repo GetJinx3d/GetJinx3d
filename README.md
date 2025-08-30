@@ -1,6 +1,6 @@
 <p align="center"> <img width="700" height="70" src="https://64.media.tumblr.com/c322501e778b0801d9434d32ff09f768/c1ded7c976ad7d29-b9/s1280x1920/022dfb19f8fd6e9f4750c759293c1c42256a32a7.pnj">
 
-<p align="right"> $\small\color{rgba(247,52,157)}{\textsf{⭑.ᐟ Recovering from surgery, online when I can be!}}$<br/>
+<p align="right"> $\small\color{rgba(247,52,157)}{\textsf{⭑.ᐟ Offline weekdays, 7am to 2pm. EST.}}$<br/>
 <p align="right"> <img src="https://komarev.com/ghpvc/?username=GetJinx3d&label=defeated%20losers&color=f63399&style=flat" alt="GetJinx3d" /> </p>
 </p>
 
