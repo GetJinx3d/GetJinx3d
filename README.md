@@ -6,7 +6,7 @@
 
 
 
-<img width="70" height="95" src="https://64.media.tumblr.com/b1b363590644b510147e9fa47fc3f1c6/ab60d91eec9fa536-89/s75x75_c1/903832a4b8688fc8790348ae29dfc55ce398ea51.gifv"> <img src="https://lastfm-profile-readme.vercel.app/api/losingmarbles?color=5d5d5d&textColor=FFFAFA&isRounded=true&displayName=true" width="300" height="80" />
+<img width="70" height="95" src="https://64.media.tumblr.com/baff5dbb37c9d88ed1a2d121ec68773b/ab60d91eec9fa536-0f/s75x75_c1/202bd063754b46d122373a666145176bef82dddb.gifv"> <img src="https://lastfm-profile-readme.vercel.app/api/losingmarbles?color=5d5d5d&textColor=FFFAFA&isRounded=true&displayName=true" width="300" height="80" />
 
 
 
