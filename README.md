@@ -1,7 +1,7 @@
 <p align="center"> <img width="700" height="70" src="https://64.media.tumblr.com/594fc57a6e21a87f35d0c939e2fa32b9/1a7499e8ed08e8b1-6d/s1280x1920/7d326398b0a83794934c33e22eea2be66bac268b.pnj">
 
-<p align="right"> $\small\color{rgba(255,250,250)}{\textsf{⭑.ᐟ Often busy weekdays, 7am to 2pm. EST.}}$<br/>
-<p align="right"> <img src="https://komarev.com/ghpvc/?username=GetJinx3d&label=defeated%20losers&color=000000&style=flat" alt="GetJinx3d" /> </p>
+<p align="right"> $\small\color{rgba(255,250,250)}{\textsf{⭑.ᐟ Christmas break, often not paying attention to PT.}}$<br/>
+<p align="right"> <img src="https://komarev.com/ghpvc/?username=GetJinx3d&label=cool%20losers&color=000000&style=flat" alt="GetJinx3d" /> </p>
 </p>
 
 
