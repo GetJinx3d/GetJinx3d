@@ -1,6 +1,6 @@
 <p align="center"> <img width="700" height="70" src="https://64.media.tumblr.com/cbd68caf45ed75737732618de89538e5/61852014a512a949-e4/s1280x1920/6a31d4791b6d27ad9a2e77b1b920d4db619d1d9e.pnj">
 
-<p align="right"> $\small\color{rgba(162, 210, 255)}{\textsf{⭑.ᐟ Christmas break, often not paying attention to PT.}}$<br/>
+<p align="right"> $\small\color{rgba(162, 210, 255)}{\textsf{⭑.ᐟ don't often respond to whispers, frequently afk.}}$<br/>
 <p align="right"> <img src="https://komarev.com/ghpvc/?username=GetJinx3d&label=cool%20losers&color=91bde5&style=flat" alt="GetJinx3d" /> </p>
 </p>
 
