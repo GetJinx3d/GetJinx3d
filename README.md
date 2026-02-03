@@ -18,7 +18,7 @@
   >
 
 <br/>
-<p align="right"> $\small\color{rgba(162, 210, 255)}{\textsf{⭑.ᐟ hi! im bear. or beer.}}$<br/> $\small\color{rgba(162, 210, 255)}{\textsf{⭑.ᐟ i'm not inclined to be nice to you.}}$<br/> $\small\color{rgba(162, 210, 255)}{\textsf{⭑.ᐟ anti-harassment. dni if -14 or if 20+.}}$<br/> $\small\color{rgba(162, 210, 255)}{\textsf{⭑.ᐟ My main fixations are Jinx (arcane) and dinosaurs.}}$<br/> $\small\color{rgba(162, 210, 255)}{\textsf{⭑.ᐟ she/he lesbian, abide by whatever pronouns you think fit more.}}$<br/> 
+<p align="right"> $\small\color{rgba(162, 210, 255)}{\textsf{⭑.ᐟ hi! im bear. or beer.}}$<br/> $\small\color{rgba(162, 210, 255)}{\textsf{⭑.ᐟ i'm not inclined to be nice to you.}}$<br/> $\small\color{rgba(162, 210, 255)}{\textsf{⭑.ᐟ anti-harassment. dni if -14 or if 22+.}}$<br/> $\small\color{rgba(162, 210, 255)}{\textsf{⭑.ᐟ My main fixations are Jinx (arcane) and dinosaurs.}}$<br/> $\small\color{rgba(162, 210, 255)}{\textsf{⭑.ᐟ she/he lesbian, abide by whatever pronouns you think fit more.}}$<br/> 
   </p>
 
   <p align="center"> <img width="700" height="70" src="https://64.media.tumblr.com/cbd68caf45ed75737732618de89538e5/61852014a512a949-e4/s1280x1920/6a31d4791b6d27ad9a2e77b1b920d4db619d1d9e.pnj">
