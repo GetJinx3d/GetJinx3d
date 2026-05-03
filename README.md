@@ -1,10 +1,8 @@
 <p align="center"> <img width="700" height="50" src="https://64.media.tumblr.com/cbd68caf45ed75737732618de89538e5/61852014a512a949-e4/s1280x1920/6a31d4791b6d27ad9a2e77b1b920d4db619d1d9e.pnj">
 
-<p align="right"> $\small\color{rgba(162, 210, 255)}{\textsf{⭑.ᐟ don't often respond to whispers, frequently afk.}}$<br/>
+<p align="right"> $\small\color{#a2d2fe}{\textsf{⭑.ᐟ don't often respond to whispers, frequently afk.}}$<br/>
 <p align="right"> <img src="https://komarev.com/ghpvc/?username=GetJinx3d&label=cool%20losers&color=91bde5&style=flat" alt="GetJinx3d" /> </p>
 </p>
-
-
 
 <img width="60" height="55" src="https://64.media.tumblr.com/dc6cc0ab77f882b52cd3a800aaa2fe28/db7ce6708c01e3ab-fc/s75x75_c1/72ee01e8a2be1ef319cc5eed86d84dd6a9ccf2bf.gifv"><img src="https://lastfm-profile-readme.vercel.app/api/losingmarbles?color=000000&textColor=91bde5&isRounded=true&displayName=true" width="300" height="80" />
 
@@ -18,7 +16,7 @@
   >
 
 <br/>
-<p align="right"> $\small\color{rgba(162, 210, 255)}{\textsf{⭑.ᐟ im bear. she/he lesbian}}$<br/> $\small\color{rgba(162, 210, 255)}{\textsf{⭑.ᐟ i don't really talk. im a bum.}}$<br/> $\small\color{rgba(162, 210, 255)}{\textsf{⭑.ᐟ anti-harassment. dni if -15 or if 22+.}}$<br/> $\small\color{rgba(162, 210, 255)}{\textsf{⭑.ᐟ My main fixations are Jinx (arcane) and dinosaurs.}}$<br/> $\small\color{rgba(162, 210, 255)}{\textsf{⭑.ᐟ coding student whos soon to university. i make mc mods and stupid websites.}}$<br/> 
+<p align="right"> $\small\color{#a2d2fe}{\textsf{⭑.ᐟ im bear. she/he lesbian}}$<br/> $\small\color{#a2d2fe}{\textsf{⭑.ᐟ i don't really talk. im a bum.}}$<br/> $\small\color{#a2d2fe}{\textsf{⭑.ᐟ anti-harassment. dni if -15 or if 22+.}}$<br/> $\small\color{#a2d2fe}{\textsf{⭑.ᐟ My main fixations are Jinx (arcane) and dinosaurs.}}$<br/> $\small\color{#a2d2fe}{\textsf{⭑.ᐟ coding student whos soon to university. i make mc mods and stupid websites.}}$<br/> 
   </p>
 
   <p align="center"> <img width="700" height="50" src="https://64.media.tumblr.com/cbd68caf45ed75737732618de89538e5/61852014a512a949-e4/s1280x1920/6a31d4791b6d27ad9a2e77b1b920d4db619d1d9e.pnj">
