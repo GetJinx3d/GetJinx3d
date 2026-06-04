@@ -32,7 +32,7 @@
 <br>
   <br>
 
-<img src="https://komarev.com/ghpvc/?username=GetJinx3d&color=8FBC8B&style=for-the-badge&label=Flowers+Bloomed:" title="let mother nature care for you...">
+<img src="https://komarev.com/ghpvc/?username=GetJinx3d&color=8FBC8B&style=for-the-badge&label=Flowers+Bloomed:" title="you're perfect!">
 
  <br>
  <br>
@@ -58,7 +58,7 @@
     <img align="left" src="https://64.media.tumblr.com/e9bec28557565d011fbeb52d4a749e17/b4963413b3d05ae7-9f/s100x200/e85cd5b4a6fa38f9f20de1d99c00e614eb1f6eaa.pnj" width="100">
 
   <br>  
-<img width="300" height="170" alt="ivy in the rain" src="https://github.com/user-attachments/assets/0237cfdf-efb2-45ce-b72f-ac518c445f0b" title="all i need is perfection." />
+<img width="300" height="170" alt="ivy in the rain by jamjoob" src="https://github.com/user-attachments/assets/0237cfdf-efb2-45ce-b72f-ac518c445f0b" title="my gorgeous ecoterrorist" />
 
   <br>  
 <img width="150" height="20" src="https://64.media.tumblr.com/7ccffd024669d139f1d920b389672384/69c91a2a7c2dd12a-f0/s250x400/e3a6d94a6ab9892d35487f0bc3739014bf23a07a.gifv">
