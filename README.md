@@ -10,7 +10,7 @@
       <p align="center"> $\normalsize\color{#8FBC8B}{\textsf{hi, i'm bear. she/he. certified lesbian.\qquad\qquad\qquad}}$
 <p align="center"> $\normalsize\color{#8FBC8B}{\textsf{my stances are anti-harassment and anti-contact.\qquad\qquad}}$<br/>
 <p align="center"> $\small\color{#8FBC8B}{\textsf{dni radqueers, transIDs tho... under 16 dni too.}}$<br/>
-<p align="left"> $\tiny\color{#8FBC8B}{\textsf{\qquad\qquad\qquad\qquad\qquad i could be considered a yume. < harley, ivy, jinx 3}}$<br/>
+<p align="left"> $\tiny\color{#8FBC8B}{\textsf{\qquad\qquad\qquad\qquad\qquad i could be considered a yume. < harley, ivy, jinx, mira, rumi 3}}$<br/>
 <p align="left"> $\tiny\color{#006A4E}{\textsf{"I have had it with mankind... They clip, They prune."}}$
 <p align="left"> $\tiny\color{#006A4E}{\textsf{\qquad\qquad\qquad\qquad"They make us remake ourselves into what they want."}}$
 <p align="left"> $\tiny\color{#006A4E}{\textsf{\qquad\qquad\qquad\qquad\qquad\qquad\qquad"A Madonna. A whore. A partner. A foe and we do it because we need."}}$ 
