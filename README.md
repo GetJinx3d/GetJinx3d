@@ -35,7 +35,7 @@
 <br>
   <br>
 
-<img src="https://komarev.com/ghpvc/?username=jinxecub&color=a935b2&style=for-the-badge&label=bombs+EXPLODED:" title="KABOOM">
+<img src="https://komarev.com/ghpvc/?username=GetJinx3d&color=a935b2&style=for-the-badge&label=bombs+EXPLODED:" title="KABOOM">
 
  <br>
  <br>
