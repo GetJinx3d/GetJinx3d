@@ -1,38 +1,41 @@
+
 <div align="center">
 
-<img width="660" height="291" src="https://github.com/user-attachments/assets/08e03b27-c151-46e5-8dc4-686663890cfd" alt="harlivy" title="together forever?"/>
+
+<img width="736" height="280" alt="jinx illustration by @ThatwasforZED on twitter" title="jinx illustration by @ThatwasforZED on twitter" src="https://i.pinimg.com/1200x/6c/ae/39/6cae3980ee417f75502750b91db6ab54.jpg" />
+
 
 
   <table border="0" align="left">
     <tr align="center"></tr>
       <th>
            <br>  
-      <p align="center"> $\normalsize\color{#8FBC8B}{\textsf{hi, i'm bear. she/he. certified lesbian.\qquad\qquad\qquad}}$
-<p align="center"> $\normalsize\color{#8FBC8B}{\textsf{my stances are anti-harassment and anti-contact.\qquad\qquad}}$<br/>
-<p align="center"> $\small\color{#8FBC8B}{\textsf{dni radqueers, transIDs tho... under 16 dni too.}}$<br/>
-<p align="left"> $\tiny\color{#8FBC8B}{\textsf{\qquad\qquad\qquad\qquad\qquad i could be considered a yume. < harley, ivy, jinx, mira, rumi 3}}$<br/>
-<p align="left"> $\tiny\color{#006A4E}{\textsf{"I have had it with mankind... They clip, They prune."}}$
-<p align="left"> $\tiny\color{#006A4E}{\textsf{\qquad\qquad\qquad\qquad"They make us remake ourselves into what they want."}}$
-<p align="left"> $\tiny\color{#006A4E}{\textsf{\qquad\qquad\qquad\qquad\qquad\qquad\qquad"A Madonna. A whore. A partner. A foe and we do it because we need."}}$ 
-<p align="left"> $\tiny\color{#008200}{\textsf{\qquad check strawpage for more on me.. (and links to socials.)}}$
-  <p align="left"> $\tiny\color{#008200}{\textsf{\qquad\qquad\qquad\qquad\qquad hashtag kinda friendless}}$<br/>
-  <p align="left"> $\large\color{#008200}{\textsf{\qquad\qquad\qquad\qquad\qquad\qquad\qquad . ݁₊ ⊹ . ݁˖ . ݁ ᨒ↟ 𖠰}}$<br/>
+      <p align="center"> $\normalsize\color{#5b83e3}{\textsf{hi, i'm bear. she/he. certified lesbian.\qquad\qquad\qquad}}$
+<p align="center"> $\normalsize\color{#607ec4}{\textsf{my stances are anti-harassment and anti-contact.\qquad\qquad}}$<br/>
+<p align="center"> $\small\color{#6780bc}{\textsf{dni radqueers, transIDs...}}$<br/>
+<p align="left"> $\tiny\color{#6078b6}{\textsf{\qquad\qquad\qquad\qquad\qquad i could be considered a yume. < rumi, mira, jinx 3}}$<br/>
+<p align="left"> $\tiny\color{#5c69b1}{\textsf{"I'm always with you, even when we're worlds apart."}}$
+<p align="left"> $\tiny\color{#7558b2}{\textsf{\qquad\qquad\qquad\qquad"I really need a new gun. But don't tell my other guns."}}$
+<p align="left"> $\tiny\color{#8f45b6}{\textsf{\qquad\qquad\qquad\qquad\qquad"Guns don't kill people. I mean, until you shoot 'em. Then they kill everything!"}}$ 
+<p align="left"> $\tiny\color{#9e3cb3}{\textsf{\qquad check strawpage for more on me.. (and links to socials.)}}$
+  <p align="left"> $\tiny\color{#a935b2}{\textsf{\qquad\qquad playlist linked has good rock music (and others) if interested winky face}}$<br/>
+  <p align="left"> $\large\color{#fc02fd}{\textsf{\qquad\qquad\qquad\qquad\qquad\qquad\qquad . ݁₊.𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.}}$<br/>
 
   </th>
   </table>
 
    <br>
-  <img align="center" src="https://64.media.tumblr.com/f0a589f832657fed198494bde8a2edf7/62e83852f3416cdd-14/s75x75_c1/b04f80189b9db02c247e659bb78b7370bc025879.gifv" width="40">
-  <img align="center" src="https://github.com/user-attachments/assets/e42f174c-cdfd-4887-932b-be3d63a1584a" height="170px" title="art by jamjoob">
-  <img align="center" src="https://64.media.tumblr.com/f5c1211e3ab41bdd2f6b2623be1b3080/7068c91b5da72c2d-96/s75x75_c1/ceb06fc7493bdf27c649de8b129daba8c7c7f1c7.gifv" width="40">
+  <img align="center" src="https://64.media.tumblr.com/f6a58dbd4c318d923700135f0ef94003/cae2d027b3f909d8-e6/s75x75_c1/f7a63a038797d19d0b7076cd7eb8ebbc3da219e3.gifv" width="40">
+  <img align="center" height="190" alt="jinx sticker" src="https://github.com/user-attachments/assets/76abddbf-2c72-413c-b99a-447901a4ed27" />
+  <img align="center" src="https://64.media.tumblr.com/28d030a6beec7e0d933407bf8cb4cd80/cae2d027b3f909d8-74/s75x75_c1/f0196dd4c4a5ee8425e913e67eda547baca61185.gifv" width="40">
 
   <br>  
       <br>
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Jim+Nightshade&size=25&duration=3000&pause=400&color=8FBC8B&center=true&multiline=true&repeat=false&width=350&height=140&lines=Pouring+out+her+chest%2C;her+sweet+flowers+lay+wilted.;She+feels+their+petals+sink+between+her+fingers%2C;leaving+nothing+but+dried+carbon." alt="embers by dead butterflies" title="embers by dead butterflies" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Montenegrin+Gothic+One&size=22&duration=3000&pause=400&color=21bfff&center=true&multiline=true&repeat=false&width=350&height=120&lines=Don't+get+any+big+ideas%2C;they're+not+gonna+happen.;%F0%92%85%8C+%E3%84%A8%E2%9C%98%E2%9C%97%EF%BE%92%E2%9C%97%E2%80%A2.%E1%90%9F" alt="Typing SVG" title="nude by radiohead" /></a>
 <br>
   <br>
 
-<img src="https://komarev.com/ghpvc/?username=GetJinx3d&color=8FBC8B&style=for-the-badge&label=Flowers+Bloomed:" title="you're perfect!">
+<img src="https://komarev.com/ghpvc/?username=jinxecub&color=a935b2&style=for-the-badge&label=bombs+EXPLODED:" title="KABOOM">
 
  <br>
  <br>
@@ -44,42 +47,37 @@
     <tr align="center"></tr>
       <th>
            <br>  
-      <a href="https://www.last.fm/user/losingmarbles"><img src="https://lastfm-recently-played.vercel.app/api?user=losingmarbles&show_user=header&footer_style=wave&count=1&width=350&loved=true&loved_style=2&header_style=none&bg_color=1B4D3E" align="center" alt="last listened to"></a><br/>
+      <a href="https://www.last.fm/user/losingmarbles"><img src="https://lastfm-recently-played.vercel.app/api?user=losingmarbles&show_user=header&footer_style=wave&count=1&width=350&loved=true&loved_style=2&header_style=none&bg_color=21bfff" align="center" alt="last listened to"></a><br/>
 <br>  
-<img src="https://64.media.tumblr.com/3edc656826f91f2139a78484c13d43bc/17e56c69ffb64f87-49/s2048x3072/122fa18f922b144df60712d26d04d0d187fa3c3a.pnj" height="50" width="450"><br/>
+<img src="https://64.media.tumblr.com/59a1685fefa418742e122e7151e1f8be/6c010a2225957f8c-a9/s400x600/aaee522904e2ba44f863371c924a11dc51aa319d.gifv" height="50" width="450"><br/>
 <br>  
-<img src="https://readme-jokes.vercel.app/api?theme=merko&bgcolor=%23679267&qColor=%2318453B&aColor=%23679267&borderColor=%23043927" align="center" alt="Jokes Card" />
+<img src="https://readme-jokes.vercel.app/api?theme=omni&bgcolor=%235a71b4&qColor=%2321bfff&aColor=%23ff03fe&borderColor=%23a935b2" align="center" alt="Jokes Card" />
   </th>
   </table>
 
   <br>
-  <img align="left" src="https://64.media.tumblr.com/510ad30947adb332e63a24dbf4ef96c7/8ef2f4d65b624802-08/s100x200/3ae5b6b7144daac705fc9506454a64e17005a01e.pnj" width="100">
-  <img align="left" src="https://64.media.tumblr.com/d2176fdd65ed8a2e1f2e66da29933cf3/8ef2f4d65b624802-3c/s100x200/1bf04f6264efa3ff3d59d066886ec315154a9ef0.pnj" width="100">
-    <img align="left" src="https://64.media.tumblr.com/e9bec28557565d011fbeb52d4a749e17/b4963413b3d05ae7-9f/s100x200/e85cd5b4a6fa38f9f20de1d99c00e614eb1f6eaa.pnj" width="100">
+ <img align="center" src="https://64.media.tumblr.com/d033f83515d990e9b98904ea23c4c6ec/f10cd3d54f6a93f2-fa/s100x200/a423522e693f08f2bbb7d70d0d72499a5eb659eb.gifv" width="100">
+  <img align="center" src="https://64.media.tumblr.com/6d741686758e1902885a388c5eb18ddc/dc5bfc7164fe1783-ba/s100x200/19eff24d99c112e1603e5aced88155dc86b2152f.gifv" width="100">
+    <img align="center" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/680c1ddc-e938-4124-9023-574a90d674b4/di0lhm7-14a30d6f-6b05-4974-8a40-5d536e46f226.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi82ODBjMWRkYy1lOTM4LTQxMjQtOTAyMy01NzRhOTBkNjc0YjQvZGkwbGhtNy0xNGEzMGQ2Zi02YjA1LTQ5NzQtOGE0MC01ZDUzNmU0NmYyMjYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.peo1E6o00FbHPG4Kh4jAU4rhuUDGPm3TrBqXlpRDHEs" width="100">
+    
+
+  <br><br>
+<img width="335" height="145" alt="Screenshot 2026-07-14 163014" src="https://github.com/user-attachments/assets/4e6ee938-8f4e-4833-8f59-4aa00f4d0046" />
+
 
   <br>  
-<img width="300" height="170" alt="ivy in the rain by jamjoob" src="https://github.com/user-attachments/assets/0237cfdf-efb2-45ce-b72f-ac518c445f0b" title="my gorgeous ecoterrorist" />
-
-  <br>  
-<img width="150" height="20" src="https://64.media.tumblr.com/7ccffd024669d139f1d920b389672384/69c91a2a7c2dd12a-f0/s250x400/e3a6d94a6ab9892d35487f0bc3739014bf23a07a.gifv">
-<img width="150" height="20" src="https://64.media.tumblr.com/9a45fcf407de88d8b13d0b10ecf19942/6395a248c41d3673-29/s250x400/46615a3456e5acd1a7a45ef2b3919777185d6757.gifv">
-<img width="150" height="20" src="https://64.media.tumblr.com/70ee062c890647de234488bf5ed4f6a3/16d7101d29a54c46-88/s250x400/a33282e54ea8bbf8c97b938ff6b16d731272184b.gifv">
-<img width="150" height="20" src="https://64.media.tumblr.com/400cf204bccb85be6649c42a86d0300b/8c08b1a07cb5f427-4d/s250x400/5fc6720b8715d3e3490461237137af04f13bbacf.gifv">
-<img width="150" height="20" src="https://64.media.tumblr.com/6bc89512af7582538734cf011b9a5e55/5ecaa4b8aa8cbc9a-d4/s250x400/6e2766d1d8a796daa602776b9646d59ecb1ce911.gifv">
-<img width="150" height="20" src="https://64.media.tumblr.com/02d78d3b38b4b18b279302761b0a9b71/4d73282282112336-72/s250x400/8c7f1957f992bb29f164d1ed751d3308842c2720.gifv">
-<img width="150" height="20" src="https://64.media.tumblr.com/a5b7bda272de89b492c84f9560847322/61a2c6b35c7c29dc-9f/s500x750/8a3382b1104570c5a3d0ec753ac6b19ba8a02334.webp">
-<img width="150" height="20" src="https://64.media.tumblr.com/82ff05158b2d87a7f7cfe5e9cff62e17/d1286c3d0213091f-8f/s540x810/71e5b81b1993454d74f76083c0df98cd38b020b0.gifv">
-<img width="150" height="20" src="https://64.media.tumblr.com/30b9b5ea536d50f593d9d8a5c92eb822/aac0b49114029b35-98/s250x400/5763d91d020ca0d76082fad367e5a3bf39a74ee1.gifv">
-<img width="150" height="20" src="https://64.media.tumblr.com/21615996cdd97fd06eb64fd4cd36b84a/8c08b1a07cb5f427-73/s250x400/68fd33f39bcf84196fbf41d3848865b83022f317.gifv">
+<img width="150" height="20" src="https://64.media.tumblr.com/c8215ecb96efcfbe2a0476143745c583/b18aff3ce9323114-33/s250x400/e7ff04c259a04e32c4a92aeca9f9b60ff5d20819.gifv">
+<img width="150" height="20" src="https://64.media.tumblr.com/3719308bd4957c1d8621fbddd8d6ebe4/c751c335e9f91105-8b/s250x400/d92e11d7c7feeefe8e8d5a4d195294294407c4f1.gifv">
+<img width="150" height="20" src="https://64.media.tumblr.com/558b89b7d287600bfaaf9179ecb78cd7/77f55812c6a44c43-23/s250x400/b26897dda22abcccdf942c0d16140bce097653c4.gifv">
+<img width="150" height="20" src="https://64.media.tumblr.com/8939c8ce6c39a9f6aab351491d975226/77f55812c6a44c43-99/s250x400/cbc0bde0574698e2699dab5f627919007ebed53d.gifv">
+<img width="150" height="20" src="https://64.media.tumblr.com/83809359fa290aa6b1bdfb2ab227b10c/7a447049b086ffa6-da/s250x400/4a5309cd738faff9ecc16fabbe21f2a9d9f65dd9.gifv">
+<img width="150" height="20" src="https://64.media.tumblr.com/92cb3331333940e452a132c3c47e2d46/15b6d532835c7bd8-10/s250x400/8636a36f8b7d0739f388cf8720d929a5549aac71.gifv">
 
   <br>  
 
 
-  <img src="https://64.media.tumblr.com/a5cd2fc949aa9df5787a049f08483314/17e56c69ffb64f87-7e/s2048x3072/3cad7dfaf512e05e58d8b4a2697716e5e35c033f.pnj">
+  <img src="https://64.media.tumblr.com/45837fce7b001cfc5ba0957895cefb88/f11ec5bea4363265-c8/s540x810/af42b33b3ac7c96ff17cc6ac07adf592c477e312.pnj">
       <br>
       
  <br>
           <br>
-
-      
-  
