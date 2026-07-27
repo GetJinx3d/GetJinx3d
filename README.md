@@ -13,7 +13,7 @@
       <p align="center"> $\normalsize\color{#5b83e3}{\textsf{hi, i'm bear. she/he. certified lesbian.\qquad\qquad\qquad}}$
 <p align="center"> $\normalsize\color{#607ec4}{\textsf{my stances are anti-harassment and anti-contact.\qquad\qquad}}$<br/>
 <p align="center"> $\small\color{#6780bc}{\textsf{dni radqueers, transIDs...}}$<br/>
-<p align="left"> $\tiny\color{#6078b6}{\textsf{\qquad\qquad\qquad\qquad\qquad i could be considered a yume. < rumi, mira, jinx 3}}$<br/>
+<p align="left"> $\tiny\color{#6078b6}{\textsf{\qquad\qquad\qquad\qquad\qquad i love my wife , proud yume of jinx (7 years)}}$<br/>
 <p align="left"> $\tiny\color{#5c69b1}{\textsf{"I'm always with you, even when we're worlds apart."}}$
 <p align="left"> $\tiny\color{#7558b2}{\textsf{\qquad\qquad\qquad\qquad"I really need a new gun. But don't tell my other guns."}}$
 <p align="left"> $\tiny\color{#8f45b6}{\textsf{\qquad\qquad\qquad\qquad\qquad"Guns don't kill people. I mean, until you shoot 'em. Then they kill everything!"}}$ 
