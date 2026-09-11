@@ -87,5 +87,8 @@
       <p align="center"> $\normalsize\color{#5b83e3}{\textsf{@title-town pt's vi arcane}}$
       <p align="center"> $\normalsize\color{#607ec4}{\textsf{@pt-walk-of-fame pt's vi arcane , online 24+7}}$
       <p align="center"> $\normalsize\color{#6780bc}{\textsf{@ponytownyumeshippers jinx's yume (voidsharing)}}$
+      <p align="center"> $\normalsize\color{#6780bc}{\textsf{@kaotowns biggest jinx fan!!!! ₤ò益óꀣ }}$
+
+      #6078b6
 
   </details>
